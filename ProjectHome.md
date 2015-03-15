@@ -1,0 +1,1 @@
+Chestnut Mountain resort is the premier place for skiing and snowboarding in Galena, IL. This tool allows you to see current snow conditions
